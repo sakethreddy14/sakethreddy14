@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @sakethreddy14
 - 👀 I’m interested in ...INVENTING SOLUTIONS..!
-- 🌱 I’m currently learning ...BIOMEDICAL ENGINEERING..
-- 💞️ I’m looking to collaborate on ...ANY FIELD IN BIOMEDCAL DEPARTMENT
+- 💞️ I’m looking to collaborate on ...New ideas and Gigs
 - 📫 How to reach me ...reddy098saketh@gmail.com
 
 <!---
